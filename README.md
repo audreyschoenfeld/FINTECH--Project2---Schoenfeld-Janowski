@@ -1,1 +1,1 @@
-# FINTECH-PROJECT2-Schoenfeld,Janowski
+# FINTECH-P2-Schoenfeld,Janowski
